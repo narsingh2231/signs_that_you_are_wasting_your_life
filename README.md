@@ -20,36 +20,36 @@
 
 # How can I improve myself in 6 months?
 
-1.Uninstall Facebook, Instagram, tiktok, etc. It’s a trap. Understand this.
+1. Uninstall Facebook, Instagram, tiktok, etc. It’s a trap. Understand this.
 
-2.Mute notifications of every unnecessary app in your phone. Even WhatsApp. Check your phone at a specific time only.
+2. Mute notifications of every unnecessary app in your phone. Even WhatsApp. Check your phone at a specific time only.
 
-3.Start spending some time alone. We tend to waste a lot of time with friends.
+3. Start spending some time alone. We tend to waste a lot of time with friends.
 
-4.Start reading that book you bought but never touched.
+4. Start reading that book you bought but never touched.
 
-5.Practice late gratification. Instant pleasures like junk food, porn, sleep, etc, are nothing but long term sufferings.
+5. Practice late gratification. Instant pleasures like junk food, porn, sleep, etc, are nothing but long term sufferings.
 
-6.Play some outdoor sports every 2-3 days. Schedule it in advance.
+6. Play some outdoor sports every 2-3 days. Schedule it in advance.
 
-7.Understand the difference between “taking rest” and “wasting time”.
+7. Understand the difference between “taking rest” and “wasting time”.
 
-8.Forgive others. You'll be at peace.
+8. Forgive others. You'll be at peace.
 
-9.Be stubborn with your priorities, learn to say no.
+9. Be stubborn with your priorities, learn to say no.
 
-10.Stay away from aimless, negative people. They'll only pull you down.
+10. Stay away from aimless, negative people. They'll only pull you down.
 
-11.Develop that skill which you always wanted in you. It may be anything like learning to code, playing guitar, swimming, etc.
+11. Develop that skill which you always wanted in you. It may be anything like learning to code, playing guitar, swimming, etc.
 
-12.Read the book Rich Dad Poor Dad.
+12. Read the book Rich Dad Poor Dad.
 
-13.Watch videos of channel - “fearless motivation” on YouTube. You'll get a boost. *Don't overdo it*. Use the “watch later” feature.
+13. Watch videos of channel - “fearless motivation” on YouTube. You'll get a boost. *Don't overdo it*. Use the “watch later” feature.
 
-14.Start doing things that scare you everyday. You're afraid to go on stage, Go on stage. You're afraid of maths, Solve questions.
-And finally, I'm not suggesting you to become an introvert or a robot. You should reward yourself some recreation, but only after working your ass off.
+14. Start doing things that scare you everyday. You're afraid to go on stage, Go on stage. You're afraid of maths, Solve questions.
+    And finally, I'm not suggesting you to become an introvert or a robot. You should reward yourself some recreation, but only after       working your ass off.
 
-15.ALWAYS THINK ABOUT YOUR GOAL IN LIFE. Be with your purpose every moment.
+15. ALWAYS THINK ABOUT YOUR GOAL IN LIFE. Be with your purpose every moment.
 
 
 And at the end, it all depends on how bad you want to change yourself. If you really want to improve, you will.
